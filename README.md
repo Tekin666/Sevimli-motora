@@ -1,0 +1,2 @@
+# Sevimli-motora
+Anlatılmaz yaşanır
